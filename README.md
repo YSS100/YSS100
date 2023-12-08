@@ -1,0 +1,4 @@
+- I’m @YSS100
+- I’m interested in computer engineering things, but I have this for future automation and software projects!
+- I’m currently learning electrical engineering.
+- In the future, this will hopefully include more projects.
